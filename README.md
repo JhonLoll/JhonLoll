@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently workink in Learning More, and More.<br>
+I'm currently working in Learning More, and More.<br>
 
 
 ## 🌐 Socials:
